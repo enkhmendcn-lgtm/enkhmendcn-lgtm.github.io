@@ -1,0 +1,1 @@
+# enkhmendcn-lgtm.github.io
